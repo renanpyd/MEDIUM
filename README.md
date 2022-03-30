@@ -1,0 +1,2 @@
+# MEDIUM
+Postagens do Medium
